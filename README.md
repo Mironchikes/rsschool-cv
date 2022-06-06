@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Mironchikes.github.io/rsschool-cv/cv
